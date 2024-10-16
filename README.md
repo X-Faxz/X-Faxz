@@ -3,6 +3,7 @@
 ```
 メ-Fâxz 🍀
 ```
+-------------------------------------------------------------------------------
 
 # My Sosmed ✨
 <br>
@@ -15,5 +16,5 @@
 <a href="https://instagram.com/@abcdefaxz4you">My Instagram</a><br>
 <a href="https://tiktok.com/@faxz4you_real">My Tiktok</a><br>
 <a href="https://wa.me/6282311435959?text=*X-Faxz*">My Whatsapp</a>
-
+<br>-------------------------------------------------------------------------------<br>
 #Support_me
